@@ -18,3 +18,5 @@ the fact that i am writing a letter to you,
 is because i know,
 i trust myself for tomorrow
 to be another day.
+love, 
+today.
